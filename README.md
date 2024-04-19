@@ -1,4 +1,7 @@
-### Hi there 👋
+Hi! I am Alyssa To, a UX design student @ UTD.
+🔭 I’m currently working @ bp as a UX design intern
+
+📫 You reach reach me through email at alyssaxto@gmail.com or LinkedIn at https://www.linkedin.com/in/alyssaxto/
 
 <!--
 **alyssaxto/alyssaxto** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
