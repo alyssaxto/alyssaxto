@@ -1,6 +1,6 @@
-Hi! I am Alyssa To, a UX design student @ UTD ✨ 
+Hi! I am Alyssa To, a UX design graduate from UTD ✨ 
 
-🔭 I’m currently working @ bp as a UX design intern
+🔭 I’m currently @ bp as a UX design new grad
 
 📫 You reach reach me through email at alyssaxto@gmail.com or LinkedIn at https://www.linkedin.com/in/alyssaxto/
 
