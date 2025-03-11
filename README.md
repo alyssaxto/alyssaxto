@@ -5,6 +5,6 @@
 
 - 𖧧 I’m currently working as a ux designer @ [bp](https://www.bp.com/)
 
-- ✎ All of my projects are available @ [my portfolio](https://alyssaxto.netlify.app/)
+- ✎ All of my projects are available @ [my portfolio](https://alyssaxto.com/)
 
 - ✉ Reach me @ **alyssaxto@gmail.com**
