@@ -5,6 +5,6 @@
 
 - 𖧧 Incoming ux designer @ [bp](https://www.bp.com/)
 
-- ✎ All of my projects are available @ [my portfolio](https://alyssaxto.com/)
+- ✎ All of my projects are available on [my portfolio](https://alyssaxto.com/)
 
 - ✉ Reach me @ **alyssaxto@gmail.com**
