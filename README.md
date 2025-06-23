@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=alyssaxto&label=Profile%20views&color=0e75b6&style=flat" alt="alyssaxto" /> </p>
 
-- 𖧧 Incoming ux designer @ [bp](https://www.bp.com/)
+- 𖧧 UX designer @ [bp](https://www.bp.com/)
 
 - ✎ All of my projects are available on [my portfolio](https://alyssaxto.com/)
 
